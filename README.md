@@ -2,5 +2,6 @@
 
 ![2](https://user-images.githubusercontent.com/105069006/195093012-fb267ccb-3845-4752-b566-55989714eb4b.png)
 
+![195135875-0348e5d0-6f66-4088-8eb2-625d52e67696](https://github.com/aktu-lucknow-result-btech2024-ac-in/aktu-lucknow-result-btech2024-ac-in.github.io/assets/105069006/eb607d5c-f446-4bf0-a8b3-1d6afd8541ac)
 
-![195093040-8e88593e-71bf-4247-ab2f-a459ba324015](https://user-images.githubusercontent.com/105069006/195135875-0348e5d0-6f66-4088-8eb2-625d52e67696.png)
+![Screenshot 2023-06-09 201431](https://github.com/aktu-lucknow-result-btech2024-ac-in/aktu-lucknow-result-btech2024-ac-in.github.io/assets/105069006/5bee3cb9-fbba-4834-a0c6-863efe84a1c9)
